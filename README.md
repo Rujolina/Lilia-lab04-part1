@@ -7,4 +7,7 @@ tonights a movie night
 what's a good movie out right now?
 
 The Land Before Time
+
+Soul
+
 Land Before Time 2
